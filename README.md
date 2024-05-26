@@ -2,4 +2,5 @@
 
 Ảnh gợi nhớ NetTruyen (gốc): 
 
-![Uploading image.png…]()
+![image](https://github.com/WBWMakoto/NetTruyen-FollowingManga-Savior/assets/57854962/f13096e5-ed02-4802-a4ac-e3292b647798)
+
